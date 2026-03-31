@@ -1,2 +1,3 @@
 # Dating-
-Rich women 28-45 seeking fit divorced construction workers 
+Rich women 18-48
+seeking older fit divorced construction workers 
